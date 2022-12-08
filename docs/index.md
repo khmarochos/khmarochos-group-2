@@ -1,3 +1,0 @@
-# Khmarochos Course of Study
-
-...
